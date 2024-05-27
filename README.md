@@ -1,6 +1,6 @@
 Boas vindas ao meu perfil 💟
 
-Meu nome é #Alana OLIveira
+Meu nome é #Alana Oliveira
 
 Estou estudando na Alura
 
